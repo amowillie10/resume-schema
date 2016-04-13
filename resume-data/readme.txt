@@ -1,0 +1,1 @@
+If your resume is in this directory, it is because your resume was found on the internet (public domain); having said that, if you wish to have your resume removed from this project, simply send an email to tfmv@outlook.com requesting the removal of your resume and your request will be honored.
